@@ -13,6 +13,8 @@
 - Salt
 - Black Pepper
 
+for illustrations
+
 ## Instructions
 
 1. Melt little bit of unsalted butter in a large pan. Add 100g of diced pancetta or smoked bacon into the pan. Cook for 5 minutes until crisp and golden brown. Take them out of the pan and set aside.
